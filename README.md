@@ -1,1 +1,1 @@
-# AlpamysNU.github.io
+# smartomir.github.io
